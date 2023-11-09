@@ -13,4 +13,4 @@ clique aqui para acessar o [alura](https://www.alura.com.br)
 
 
 
-![](https://tenor.com/pt-BR/view/manual-do-mundo-faca-voce-mesmo-diy-vamos-subir-esse-programinha-upload-gif-14056301)
+![](https://tenor.com/pt-BR/view/get-with-the-program-benny-fairfax-get-with-it-get-a-clue-gif-25601246)
