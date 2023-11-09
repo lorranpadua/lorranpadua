@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--
 **lorranpadua/lorranpadua** 
 
 🔭 atualmente estou estudando 'hmtl' e 'css'.
