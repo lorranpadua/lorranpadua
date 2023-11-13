@@ -9,4 +9,5 @@
 
 clique aqui para acessar o [alura](https://www.alura.com.br)
 
-https://tenor.com/pt-BR/view/animation-cartoons-toons-danny-phantom-danny-fenton-gif-14827989
+![image](https://github.com/lorranpadua/lorranpadua/assets/150396537/563751e2-518e-4021-9369-5b9554795ae3)
+
