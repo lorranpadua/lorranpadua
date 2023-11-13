@@ -9,7 +9,4 @@
 
 clique aqui para acessar o [alura](https://www.alura.com.br)
 
-
-
-
-![](https://tenor.com/pt-BR/view/get-with-the-program-benny-fairfax-get-with-it-get-a-clue-gif-25601246)
+https://tenor.com/pt-BR/view/animation-cartoons-toons-danny-phantom-danny-fenton-gif-14827989
