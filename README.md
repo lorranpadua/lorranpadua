@@ -9,5 +9,5 @@
 
 clique aqui para acessar o [alura](https://www.alura.com.br)
 
-![image](https://github.com/lorranpadua/lorranpadua/assets/150396537/563751e2-518e-4021-9369-5b9554795ae3)
+https://media.tenor.com/s6eHxBGHvlIAAAAM/animation-cartoons.gif
 
